@@ -1,4 +1,4 @@
-
+life together rp Scripts elite is the best life together rp Script, featuring esp and auto-upgrade. Safe and powerful for all your needs.
 
 
 
